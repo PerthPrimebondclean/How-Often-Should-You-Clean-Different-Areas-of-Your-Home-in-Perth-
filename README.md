@@ -1,4 +1,4 @@
-# How-Often-Should-You-Clean-Different-Areas-of-Your-Home-in-Perth-
+# How-Often-Should-You-Clean-Different-Areas-of-Your-Home-in-Perth
 Cleaning your home clean is crucial to the health of your home and. But knowing when to wash different areas of your home can be a challenge.
 
 This guide will assist you in understanding the best cleaning frequency for the various areas in your home.
